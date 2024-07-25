@@ -1,0 +1,1 @@
+# Prototipo-de-Aplicacion-Movil-QR-Fast-
